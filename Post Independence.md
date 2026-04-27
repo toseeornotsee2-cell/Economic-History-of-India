@@ -8,4 +8,4 @@ What state was India in before Independence?
 How did it get there?
 What challenges lay during and after independence?
 
-
+Perhaps, as a starter, let us consider the data compiled by economic historian Angus Maddison. A brief introduction to Maddison can be viewed here - https://www.rug.nl/ggdc/historicaldevelopment/maddison/original-maddison 
